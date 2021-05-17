@@ -1,2 +1,3 @@
-Gustavo Rocha de Souza \n
-Vagner Magnon
+• Gustavo Rocha de Souza 
+
+• Vagner Magnon
